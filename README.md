@@ -11,7 +11,7 @@
 
 - 📫 How to reach me **mamtabisht.0522@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/1SfxCIoKXchmBRVO8mlkS2g1xnQchnyhs/view?usp=share_link](https://drive.google.com/file/d/1SfxCIoKXchmBRVO8mlkS2g1xnQchnyhs/view?usp=share_link)
+- 📄 Know about my experiences [https://drive.google.com/file/d/1PTZ8zQaHnr7jk1XFIJSL2ifDQJd24cwr/view?usp=sharing](https://drive.google.com/file/d/1SfxCIoKXchmBRVO8mlkS2g1xnQchnyhs/view?usp=share_link)
 
 - ⚡ Fun fact **I think I am cool**
 
